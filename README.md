@@ -19,6 +19,7 @@
 | 备用 | https://aihuangdou.cc |
 | 备用 | https://aihuangdou.net |
 | 备用 | https://doudj.cc |
+| 备用 | https://hddj2.cc |
 | 备用 | https://hddj2.net |
 | 备用 | https://hddju.cc |
 | 备用 | https://hddoudj.com |
