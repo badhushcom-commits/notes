@@ -21,6 +21,7 @@
 | 备用 | https://madoudj.net |
 | 备用 | https://madoudj.vip |
 | 备用 | https://madoudj1.com |
+| 备用 | https://madoudj1.net |
 | 备用 | https://mddj.tv |
 | 备用 | https://mddj.tw |
 | 备用 | https://mdmgdj.cc |
