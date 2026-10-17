@@ -40,6 +40,7 @@
 | 备用 | https://huangdoudj.me |
 | 备用 | https://huangdoudj.net |
 | 备用 | https://huangdoudj.tv |
+| 备用 | https://huangdouduanj.com |
 | 备用 | https://huangdouduanj.tv |
 | 备用 | https://huangdouhui.com |
 | 备用 | https://huangdouhui.net |
