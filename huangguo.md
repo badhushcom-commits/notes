@@ -22,6 +22,7 @@
 | 备用 | https://huangguoduanjua.cc |
 | 备用 | https://huangguoduanjua.com |
 | 备用 | https://huangguoduanjua.net |
+| 备用 | https://huangguoduanjua.tv |
 | 备用 | https://huangguosp.net |
 | 备用 | https://netshortdj.com |
 
