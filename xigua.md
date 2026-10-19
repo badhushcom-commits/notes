@@ -18,6 +18,7 @@
 | 备用 | https://xiguadj.cc |
 | 备用 | https://xiguadj01.com |
 | 备用 | https://xiguaduanju.cc |
+| 备用 | https://xiguaduanjua.cc |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://xgdj.tv/dizhi/
 
