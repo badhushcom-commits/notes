@@ -28,6 +28,7 @@
 | 备用 | https://huangtaoai.net |
 | 备用 | https://huangtaodj.com |
 | 备用 | https://huangtaodj.net |
+| 备用 | https://huangtaoduanju.cc |
 | 备用 | https://huangtaoduanju.net |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://htdjsp.com/dizhi/
