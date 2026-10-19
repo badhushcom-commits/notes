@@ -37,6 +37,7 @@
 | 备用 | https://huangguaduanjua.cc |
 | 备用 | https://huangguaduanjua.com |
 | 备用 | https://huangguaduanjua.net |
+| 备用 | https://huangguaduanjub.cc |
 | 备用 | https://shorthg.com |
 | 备用 | https://shorthg.net |
 
