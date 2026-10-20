@@ -28,6 +28,7 @@
 | 备用 | https://madouduanjua.cc |
 | 备用 | https://madouduanjua.com |
 | 备用 | https://madouduanjua.net |
+| 备用 | https://madouduanjub.cc |
 | 备用 | https://madouduanjub.com |
 | 备用 | https://mddj.tv |
 | 备用 | https://mddj.tw |
