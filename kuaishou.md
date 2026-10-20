@@ -29,6 +29,7 @@
 | 备用 | https://kuaishoudj.tv |
 | 备用 | https://kuaishoudja.com |
 | 备用 | https://kuaishoudja.net |
+| 备用 | https://kuaishouduanju.cc |
 | 备用 | https://kuaishouduanju.net |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://aiksdj.com/dizhi/
