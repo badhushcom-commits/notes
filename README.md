@@ -44,6 +44,7 @@
 | 备用 | https://huangdouduanj.com |
 | 备用 | https://huangdouduanj.net |
 | 备用 | https://huangdouduanj.tv |
+| 备用 | https://huangdouduanjua.cc |
 | 备用 | https://huangdouduanjua.com |
 | 备用 | https://huangdouhui.com |
 | 备用 | https://huangdouhui.net |
