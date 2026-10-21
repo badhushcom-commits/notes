@@ -18,6 +18,7 @@
 | 备用 | https://xiguadj.cc |
 | 备用 | https://xiguadj01.com |
 | 备用 | https://xiguaduanj.cc |
+| 备用 | https://xiguaduanj.net |
 | 备用 | https://xiguaduanju.cc |
 | 备用 | https://xiguaduanjua.cc |
 | 备用 | https://xiguaduanjua.com |
