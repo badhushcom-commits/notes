@@ -11,6 +11,7 @@
 | 入口 | 链接 |
 | --- | --- |
 | 主站 | https://fqdrama.com |
+| 备用 | https://fanqieduanj.cc |
 | 备用 | https://fanqieduanju.cc |
 | 备用 | https://fanqieduanju.net |
 | 备用 | https://fanqieduanjua.cc |
