@@ -2,7 +2,7 @@
 
 Toon短剧精选上万部短剧全集免费在线观看,涵盖Toon首发原创、鬼马剧场、真人剧场、都市甜宠、复仇逆袭、古装虐恋等题材,每日更新,高清竖屏沉浸追剧,手机电脑打开即看,无需下载。
 
-> 最后更新：2026-10-20
+> 最后更新：2026-10-21
 
 ## 🌐 最新地址
 
@@ -20,6 +20,7 @@ Toon短剧精选上万部短剧全集免费在线观看,涵盖Toon首发原创�
 | 备用 | https://toonduanju.cc |
 | 备用 | https://toonduanju.com |
 | 备用 | https://toonduanju.net |
+| 备用 | https://toonduanjua.cc |
 | 备用 | https://toonduanjua.com |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://toondj.com/dizhi/
