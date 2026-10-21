@@ -2,7 +2,7 @@
 
 黄桃短剧汇聚全网热门短剧全集,免费高清在线畅追:霸总闪婚、娱乐圈、校园青春、重生逆袭与大女主多元题材,每日上新,竖屏沉浸,手机电脑打开即看,无需下载安装。
 
-> 最后更新：2026-10-20
+> 最后更新：2026-10-21
 
 ## 🌐 最新地址
 
@@ -32,6 +32,7 @@
 | 备用 | https://huangtaoduanju.net |
 | 备用 | https://huangtaoduanjua.cc |
 | 备用 | https://huangtaoduanjua.com |
+| 备用 | https://huangtaoduanjua.net |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://htdjsp.com/dizhi/
 
