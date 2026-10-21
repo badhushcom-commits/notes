@@ -40,6 +40,7 @@
 | 备用 | https://huangguaduanjub.cc |
 | 备用 | https://huangguaduanjub.com |
 | 备用 | https://huangguaduanjub.net |
+| 备用 | https://huangguaduanjuc.cc |
 | 备用 | https://huangguaduanjuc.com |
 | 备用 | https://shorthg.com |
 | 备用 | https://shorthg.net |
