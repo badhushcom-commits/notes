@@ -18,6 +18,7 @@
 | 备用 | https://putidj.net |
 | 备用 | https://putidj.tv |
 | 备用 | https://putiduanj.cc |
+| 备用 | https://putiduanj.net |
 | 备用 | https://putiduanju.cc |
 | 备用 | https://putiduanju.com |
 | 备用 | https://putiduanju.net |
