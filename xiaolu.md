@@ -20,6 +20,7 @@
 | 备用 | https://xiaoluduanjua.com |
 | 备用 | https://xiaoluduanjua.net |
 | 备用 | https://xiaoluduanjub.cc |
+| 备用 | https://xiaoluduanjub.com |
 | 备用 | https://xlmgdj.cc |
 | 备用 | https://xlmgdj.com |
 | 备用 | https://xlmgdj.net |
