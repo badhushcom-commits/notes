@@ -43,6 +43,7 @@
 | 备用 | https://huangguaduanjuc.cc |
 | 备用 | https://huangguaduanjuc.com |
 | 备用 | https://huangguaduanjuc.net |
+| 备用 | https://huangguaduanjud.com |
 | 备用 | https://shorthg.com |
 | 备用 | https://shorthg.net |
 
