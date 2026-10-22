@@ -32,6 +32,7 @@
 | 备用 | https://madouduanjub.com |
 | 备用 | https://madouduanjub.net |
 | 备用 | https://madouduanjuc.cc |
+| 备用 | https://madouduanjuc.com |
 | 备用 | https://madouduanjuc.net |
 | 备用 | https://mddj.tv |
 | 备用 | https://mddj.tw |
