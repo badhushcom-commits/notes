@@ -20,6 +20,7 @@
 | 备用 | https://kaixinduanjua.com |
 | 备用 | https://kaixinduanjua.net |
 | 备用 | https://kaixinduanjub.cc |
+| 备用 | https://kaixinduanjub.com |
 | 备用 | https://kxaidj.cc |
 | 备用 | https://kxaidj.com |
 | 备用 | https://kxaidj.net |
