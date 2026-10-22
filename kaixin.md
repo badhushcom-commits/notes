@@ -2,7 +2,7 @@
 
 开心短剧精选上万部短剧全集免费在线观看,涵盖开心首发原创、爆笑剧场、真人出演、都市甜宠、复仇逆袭、古装虐恋等题材,每日更新,高清竖屏沉浸追剧,手机电脑打开即看,无需下载。
 
-> 最后更新：2026-10-21
+> 最后更新：2026-10-22
 
 ## 🌐 最新地址
 
@@ -19,6 +19,7 @@
 | 备用 | https://kaixinduanjua.cc |
 | 备用 | https://kaixinduanjua.com |
 | 备用 | https://kaixinduanjua.net |
+| 备用 | https://kaixinduanjub.cc |
 | 备用 | https://kxaidj.cc |
 | 备用 | https://kxaidj.com |
 | 备用 | https://kxaidj.net |
