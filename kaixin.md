@@ -14,6 +14,7 @@
 | 备用 | https://kaixindj.cc |
 | 备用 | https://kaixindj.net |
 | 备用 | https://kaixinduanj.cc |
+| 备用 | https://kaixinduanj.com |
 | 备用 | https://kaixinduanju.cc |
 | 备用 | https://kaixinduanju.net |
 | 备用 | https://kaixinduanjua.cc |
