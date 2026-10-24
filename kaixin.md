@@ -24,6 +24,7 @@
 | 备用 | https://kaixinduanjub.com |
 | 备用 | https://kaixinduanjub.net |
 | 备用 | https://kaixinduanjuc.com |
+| 备用 | https://kaixinduanjuc.net |
 | 备用 | https://kxaidj.cc |
 | 备用 | https://kxaidj.com |
 | 备用 | https://kxaidj.net |
