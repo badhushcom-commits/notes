@@ -32,6 +32,7 @@
 | 备用 | https://huangguoduanjud.cc |
 | 备用 | https://huangguoduanjud.com |
 | 备用 | https://huangguoduanjud.net |
+| 备用 | https://huangguoduanjue.cc |
 | 备用 | https://huangguoduanjue.com |
 | 备用 | https://huangguoduanjue.net |
 | 备用 | https://netshortdj.com |
