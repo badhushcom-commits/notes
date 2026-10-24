@@ -47,6 +47,7 @@
 | 备用 | https://huangguaduanjud.com |
 | 备用 | https://huangguaduanjud.net |
 | 备用 | https://huangguaduanjue.com |
+| 备用 | https://huangguaduanjue.net |
 | 备用 | https://shorthg.com |
 | 备用 | https://shorthg.net |
 
