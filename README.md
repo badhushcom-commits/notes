@@ -2,7 +2,7 @@
 
 黄豆短剧提供 4200+ 部短剧全集免费在线观看:ai每日大赛、魔改短剧AI、真人短剧、AI漫剧、二次元同人四大类齐备,虐恋、复仇、重生、古装、恐怖怪谈题材应有尽有。每日更新追更,高清免费看,无需下载,手机电脑打开即看。
 
-> 最后更新：2026-10-23
+> 最后更新：2026-10-24
 
 ## 🌐 最新地址
 
@@ -16,7 +16,6 @@
 | 备用 | https://aihdsp.cc |
 | 备用 | https://aihdsp.com |
 | 备用 | https://aihdsp.net |
-| 备用 | https://aihuangdou.cc |
 | 备用 | https://aihuangdou.net |
 | 备用 | https://doudj.cc |
 | 备用 | https://hddj2.cc |
@@ -52,6 +51,7 @@
 | 备用 | https://huangdouduanjub.net |
 | 备用 | https://huangdouduanjuc.cc |
 | 备用 | https://huangdouduanjuc.com |
+| 备用 | https://huangdouduanjuc.net |
 | 备用 | https://huangdouhui.com |
 | 备用 | https://huangdouhui.net |
 | 备用 | https://huangdouhui.tv |
