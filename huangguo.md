@@ -19,6 +19,7 @@
 | 备用 | https://huangguoaii.cc |
 | 备用 | https://huangguoaii.net |
 | 备用 | https://huangguodj.net |
+| 备用 | https://huangguoduanj.cc |
 | 备用 | https://huangguoduanj.net |
 | 备用 | https://huangguoduanjua.cc |
 | 备用 | https://huangguoduanjua.com |
