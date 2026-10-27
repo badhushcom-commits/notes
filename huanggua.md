@@ -2,7 +2,7 @@
 
 黄瓜短剧提供 4200+ 部短剧全集免费在线观看:ai每日大赛、魔改短剧AI、真人短剧、AI漫剧、二次元同人四大类齐备,虐恋、复仇、重生、古装、恐怖怪谈题材应有尽有。每日更新追更,高清免费看,无需下载,手机电脑打开即看。
 
-> 最后更新：2026-10-26
+> 最后更新：2026-10-27
 
 ## 🌐 最新地址
 
@@ -49,6 +49,7 @@
 | 备用 | https://huangguaduanjue.cc |
 | 备用 | https://huangguaduanjue.com |
 | 备用 | https://huangguaduanjue.net |
+| 备用 | https://huangguaduanjuf.com |
 | 备用 | https://huangguaduanjuf.net |
 | 备用 | https://shorthg.com |
 | 备用 | https://shorthg.net |
