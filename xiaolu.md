@@ -27,6 +27,7 @@
 | 备用 | https://xiaoluduanjuc.cc |
 | 备用 | https://xiaoluduanjuc.com |
 | 备用 | https://xiaoluduanjuc.net |
+| 备用 | https://xiaoluduanjud.cc |
 | 备用 | https://xiaoluduanjud.com |
 | 备用 | https://xlmgdj.cc |
 | 备用 | https://xlmgdj.com |
