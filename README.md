@@ -55,6 +55,7 @@
 | 备用 | https://huangdouduanjud.cc |
 | 备用 | https://huangdouduanjud.com |
 | 备用 | https://huangdouduanjud.net |
+| 备用 | https://huangdouduanjue.cc |
 | 备用 | https://huangdouduanjue.com |
 | 备用 | https://huangdouhui.com |
 | 备用 | https://huangdouhui.net |
