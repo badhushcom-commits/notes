@@ -49,6 +49,7 @@
 | 备用 | https://huangguaduanjue.cc |
 | 备用 | https://huangguaduanjue.com |
 | 备用 | https://huangguaduanjue.net |
+| 备用 | https://huangguaduanjuf.cc |
 | 备用 | https://huangguaduanjuf.com |
 | 备用 | https://huangguaduanjuf.net |
 | 备用 | https://shorthg.com |
