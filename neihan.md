@@ -2,7 +2,7 @@
 
 内涵短剧精选上万部短剧全集免费在线观看,涵盖内涵首发原创、脑洞剧场、真人番外、都市甜宠、复仇逆袭、古装虐恋等题材,每日更新,高清竖屏沉浸追剧,手机电脑打开即看,无需下载。
 
-> 最后更新：2026-10-26
+> 最后更新：2026-10-27
 
 ## 🌐 最新地址
 
@@ -11,7 +11,6 @@
 | 入口 | 链接 |
 | --- | --- |
 | 主站 | https://nhdj.tv |
-| 备用 | https://fanqieduanjuc.cc |
 | 备用 | https://neihanduanj.com |
 | 备用 | https://neihanduanj.net |
 | 备用 | https://neihanduanju.cc |
@@ -26,6 +25,7 @@
 | 备用 | https://neihanduanjuc.cc |
 | 备用 | https://neihanduanjuc.com |
 | 备用 | https://neihanduanjuc.net |
+| 备用 | https://neihanduanjud.com |
 | 备用 | https://nhaidj.cc |
 | 备用 | https://nhaidj.com |
 | 备用 | https://nhaidj.net |
