@@ -37,6 +37,7 @@
 | 备用 | https://huangguoduanjue.cc |
 | 备用 | https://huangguoduanjue.com |
 | 备用 | https://huangguoduanjue.net |
+| 备用 | https://huangguoduanjuf.cc |
 | 备用 | https://huangguoduanjuf.com |
 | 备用 | https://netshortdj.com |
 
