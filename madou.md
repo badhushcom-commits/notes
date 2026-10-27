@@ -40,6 +40,7 @@
 | 备用 | https://madouduanjue.cc |
 | 备用 | https://madouduanjue.com |
 | 备用 | https://madouduanjue.net |
+| 备用 | https://madouduanjuf.cc |
 | 备用 | https://madouduanjuf.com |
 | 备用 | https://mddj.tv |
 | 备用 | https://mddj.tw |
