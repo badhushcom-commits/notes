@@ -44,6 +44,7 @@
 | 备用 | https://kuaishouduanjuc.com |
 | 备用 | https://kuaishouduanjud.cc |
 | 备用 | https://kuaishouduanjud.com |
+| 备用 | https://kuaishouduanjud.net |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://aiksdj.com/dizhi/
 
