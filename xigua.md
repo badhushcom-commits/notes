@@ -33,6 +33,7 @@
 | 备用 | https://xiguaduanjue.cc |
 | 备用 | https://xiguaduanjue.com |
 | 备用 | https://xiguaduanjue.net |
+| 备用 | https://xiguaduanjuf.cc |
 | 备用 | https://xiguaduanjuf.com |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://xgdj.tv/dizhi/
