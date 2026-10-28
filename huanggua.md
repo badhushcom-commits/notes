@@ -52,6 +52,7 @@
 | 备用 | https://huangguaduanjuf.cc |
 | 备用 | https://huangguaduanjuf.com |
 | 备用 | https://huangguaduanjuf.net |
+| 备用 | https://huangguaduanjug.cc |
 | 备用 | https://huangguaduanjug.com |
 | 备用 | https://shorthg.com |
 | 备用 | https://shorthg.net |
