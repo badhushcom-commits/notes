@@ -40,6 +40,7 @@
 | 备用 | https://huangguoduanjuf.cc |
 | 备用 | https://huangguoduanjuf.com |
 | 备用 | https://huangguoduanjuf.net |
+| 备用 | https://huangguoduanjug.com |
 | 备用 | https://netshortdj.com |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://huangguodj.tv/dizhi/
