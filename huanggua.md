@@ -55,6 +55,7 @@
 | 备用 | https://huangguaduanjug.cc |
 | 备用 | https://huangguaduanjug.com |
 | 备用 | https://huangguaduanjug.net |
+| 备用 | https://huangguaduanjuh.com |
 | 备用 | https://shorthg.com |
 | 备用 | https://shorthg.net |
 
