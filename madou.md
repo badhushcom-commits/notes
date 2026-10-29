@@ -24,6 +24,7 @@
 | 备用 | https://madoudj1.net |
 | 备用 | https://madouduanj.cc |
 | 备用 | https://madouduanj.com |
+| 备用 | https://madouduanj.net |
 | 备用 | https://madouduanju.cc |
 | 备用 | https://madouduanju.net |
 | 备用 | https://madouduanju.tv |
