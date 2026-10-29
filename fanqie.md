@@ -30,6 +30,7 @@
 | 备用 | https://fanqieduanjud.net |
 | 备用 | https://fanqieduanjue.cc |
 | 备用 | https://fanqieduanjue.com |
+| 备用 | https://fanqieduanjue.net |
 | 备用 | https://fqdrama.cc |
 | 备用 | https://fqdrama.net |
 | 备用 | https://fqmgdj.cc |
