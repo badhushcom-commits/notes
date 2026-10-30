@@ -2,7 +2,7 @@
 
 黄果短剧汇聚全网热门短剧全集,免费高清在线追看:古装穿越、战神逆袭、豪门恩怨、复仇虐恋与系统异能多元题材,每日上新,竖屏沉浸,手机电脑打开即看,无需下载安装。
 
-> 最后更新：2026-10-29
+> 最后更新：2026-10-30
 
 ## 🌐 最新地址
 
@@ -43,6 +43,7 @@
 | 备用 | https://huangguoduanjug.cc |
 | 备用 | https://huangguoduanjug.com |
 | 备用 | https://huangguoduanjug.net |
+| 备用 | https://huangguoduanjuh.com |
 | 备用 | https://netshortdj.com |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://huangguodj.tv/dizhi/
