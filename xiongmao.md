@@ -2,7 +2,7 @@
 
 熊猫短剧精选上万部短剧全集免费在线观看,涵盖熊猫首发原创、爆款剧场、真人出演、都市甜宠、复仇逆袭、古装虐恋等题材,每日更新,高清竖屏沉浸追剧,手机电脑打开即看,无需下载。
 
-> 最后更新：2026-10-23
+> 最后更新：2026-10-30
 
 ## 🌐 最新地址
 
@@ -22,6 +22,7 @@
 | 备用 | https://xiongmaoduanju.net |
 | 备用 | https://xiongmaoduanjua.cc |
 | 备用 | https://xiongmaoduanjua.net |
+| 备用 | https://xiongmaoduanjuc.com |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://xiongmaodj.net/dizhi/
 
