@@ -60,6 +60,7 @@
 | 备用 | https://huangdouduanjuf.cc |
 | 备用 | https://huangdouduanjuf.com |
 | 备用 | https://huangdouduanjuf.net |
+| 备用 | https://huangdouduanjug.cc |
 | 备用 | https://huangdouduanjug.com |
 | 备用 | https://huangdouhui.com |
 | 备用 | https://huangdouhui.net |
