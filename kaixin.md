@@ -33,6 +33,7 @@
 | 备用 | https://kaixinduanjue.cc |
 | 备用 | https://kaixinduanjue.com |
 | 备用 | https://kaixinduanjue.net |
+| 备用 | https://kaixinduanjuf.cc |
 | 备用 | https://kaixinduanjuf.com |
 | 备用 | https://kxaidj.cc |
 | 备用 | https://kxaidj.com |
