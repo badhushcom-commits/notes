@@ -46,6 +46,7 @@
 | 备用 | https://madouduanjuf.cc |
 | 备用 | https://madouduanjuf.com |
 | 备用 | https://madouduanjuf.net |
+| 备用 | https://madouduanjug.cc |
 | 备用 | https://madouduanjug.com |
 | 备用 | https://mddj.tv |
 | 备用 | https://mddj.tw |
