@@ -16,6 +16,7 @@
 | 备用 | https://aixmdj.com |
 | 备用 | https://aixmdj.net |
 | 备用 | https://xiongmaodj.cc |
+| 备用 | https://xiongmaoduanj.cc |
 | 备用 | https://xiongmaoduanj.com |
 | 备用 | https://xiongmaoduanju.cc |
 | 备用 | https://xiongmaoduanju.com |
