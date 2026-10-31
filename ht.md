@@ -2,7 +2,7 @@
 
 黄桃短剧汇聚全网热门短剧全集,免费高清在线畅追:霸总闪婚、娱乐圈、校园青春、重生逆袭与大女主多元题材,每日上新,竖屏沉浸,手机电脑打开即看,无需下载安装。
 
-> 最后更新：2026-10-30
+> 最后更新：2026-10-31
 
 ## 🌐 最新地址
 
@@ -17,6 +17,7 @@
 | 备用 | https://aihtdj.xyz |
 | 备用 | https://aihuangtao.cc |
 | 备用 | https://aihuangtao.net |
+| 备用 | https://aihuangtaodj.com |
 | 备用 | https://htdj.tv |
 | 备用 | https://htdjsp.cc |
 | 备用 | https://htdjsp.net |
