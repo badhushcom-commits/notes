@@ -17,6 +17,7 @@
 | 备用 | https://aihtdj.xyz |
 | 备用 | https://aihuangtao.cc |
 | 备用 | https://aihuangtao.net |
+| 备用 | https://aihuangtaodj.cc |
 | 备用 | https://aihuangtaodj.com |
 | 备用 | https://htdj.tv |
 | 备用 | https://htdjsp.cc |
