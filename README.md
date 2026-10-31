@@ -63,6 +63,7 @@
 | 备用 | https://huangdouduanjug.cc |
 | 备用 | https://huangdouduanjug.com |
 | 备用 | https://huangdouduanjug.net |
+| 备用 | https://huangdouduanjuh.com |
 | 备用 | https://huangdouhui.com |
 | 备用 | https://huangdouhui.net |
 | 备用 | https://huangdouhui.tv |
