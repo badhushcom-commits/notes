@@ -17,6 +17,7 @@
 | 备用 | https://aimdshort.com |
 | 备用 | https://aimdsp.cc |
 | 备用 | https://aimdsp.net |
+| 备用 | https://hgdjsp.com |
 | 备用 | https://madouai.net |
 | 备用 | https://madoudj.net |
 | 备用 | https://madoudj.vip |
