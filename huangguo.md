@@ -12,6 +12,7 @@
 | --- | --- |
 | 主站 | https://huangguodj.tv |
 | 备用 | https://aihuangguodj.cc |
+| 备用 | https://aihuangguodj.net |
 | 备用 | https://amorshort.net |
 | 备用 | https://hgdj11.cc |
 | 备用 | https://hgdj11.net |
