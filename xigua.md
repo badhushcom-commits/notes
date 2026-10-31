@@ -13,6 +13,7 @@
 | 主站 | https://xgdj.tv |
 | 备用 | https://aixgdj.com |
 | 备用 | https://aixgdj.net |
+| 备用 | https://aixiguaduanju.cc |
 | 备用 | https://aixiguaduanju.com |
 | 备用 | https://xgdj01.com |
 | 备用 | https://xgmgdj.com |
