@@ -2,7 +2,7 @@
 
 西瓜短剧精选上万部短剧全集免费在线观看,涵盖西瓜首发原创、魔改剧场、真人出演、都市甜宠、复仇逆袭、古装虐恋等题材,每日更新,高清竖屏沉浸追剧,手机电脑打开即看,无需下载。
 
-> 最后更新：2026-10-31
+> 最后更新：2026-11-02
 
 ## 🌐 最新地址
 
@@ -15,6 +15,7 @@
 | 备用 | https://aixgdj.net |
 | 备用 | https://aixiguaduanju.cc |
 | 备用 | https://aixiguaduanju.com |
+| 备用 | https://aixiguaduanju.net |
 | 备用 | https://xgdj01.com |
 | 备用 | https://xgmgdj.com |
 | 备用 | https://xiguadj.cc |
