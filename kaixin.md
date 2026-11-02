@@ -37,6 +37,7 @@
 | 备用 | https://kaixinduanjuf.cc |
 | 备用 | https://kaixinduanjuf.com |
 | 备用 | https://kaixinduanjuf.net |
+| 备用 | https://kaixinduanjug.cc |
 | 备用 | https://kaixinduanjug.com |
 | 备用 | https://kxaidj.cc |
 | 备用 | https://kxaidj.com |
