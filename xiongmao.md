@@ -23,6 +23,7 @@
 | 备用 | https://xiongmaoduanju.net |
 | 备用 | https://xiongmaoduanjua.cc |
 | 备用 | https://xiongmaoduanjua.net |
+| 备用 | https://xiongmaoduanjub.cc |
 | 备用 | https://xiongmaoduanjub.com |
 | 备用 | https://xiongmaoduanjuc.cc |
 | 备用 | https://xiongmaoduanjuc.com |
