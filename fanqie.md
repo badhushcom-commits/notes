@@ -36,6 +36,7 @@
 | 备用 | https://fanqieduanjuf.net |
 | 备用 | https://fanqieduanjug.cc |
 | 备用 | https://fanqieduanjug.com |
+| 备用 | https://fanqieduanjug.net |
 | 备用 | https://fqdrama.cc |
 | 备用 | https://fqdrama.net |
 | 备用 | https://fqmgdj.cc |
