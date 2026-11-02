@@ -53,6 +53,7 @@
 | 备用 | https://huangtaoduanjue.net |
 | 备用 | https://huangtaoduanjuf.cc |
 | 备用 | https://huangtaoduanjuf.com |
+| 备用 | https://huangtaoduanjuf.net |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://htdjsp.com/dizhi/
 
