@@ -35,6 +35,7 @@
 | 备用 | https://neihanduanjuf.cc |
 | 备用 | https://neihanduanjuf.com |
 | 备用 | https://neihanduanjuf.net |
+| 备用 | https://neihanduanjug.cc |
 | 备用 | https://neihanduanjug.com |
 | 备用 | https://nhaidj.cc |
 | 备用 | https://nhaidj.com |
