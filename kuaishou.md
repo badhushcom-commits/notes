@@ -16,6 +16,7 @@
 | 备用 | https://aikssp.cc |
 | 备用 | https://aikssp.com |
 | 备用 | https://aikssp.net |
+| 备用 | https://aikuaishouduanju.com |
 | 备用 | https://amorshort.cc |
 | 备用 | https://ksdj.tv |
 | 备用 | https://ksdjai.cc |
