@@ -38,6 +38,7 @@
 | 备用 | https://neihanduanjug.cc |
 | 备用 | https://neihanduanjug.com |
 | 备用 | https://neihanduanjug.net |
+| 备用 | https://neihanduanjuh.com |
 | 备用 | https://nhaidj.cc |
 | 备用 | https://nhaidj.com |
 | 备用 | https://nhaidj.net |
