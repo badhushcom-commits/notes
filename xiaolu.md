@@ -10,7 +10,8 @@
 
 | 入口 | 链接 |
 | --- | --- |
-| 主站 | https://aixiaoludj.com |
+| 主站 | https://4399duanjuh.net |
+| 备用 | https://aixiaoludj.com |
 | 备用 | https://xiaoludj.cc |
 | 备用 | https://xiaoludj.net |
 | 备用 | https://xiaoluduanj.cc |
@@ -45,7 +46,7 @@
 | 备用 | https://xlmgdj.com |
 | 备用 | https://xlmgdj.net |
 
-> 站内地址页（能打开时以它为准，更新更实时）：https://aixiaoludj.com/dizhi/
+> 站内地址页（能打开时以它为准，更新更实时）：https://4399duanjuh.net/dizhi/
 
 ## 📌 失联后如何获取最新地址
 
