@@ -29,6 +29,7 @@
 | 备用 | https://xiongmaoduanjuc.cc |
 | 备用 | https://xiongmaoduanjuc.com |
 | 备用 | https://xiongmaoduanjuc.net |
+| 备用 | https://xiongmaoduanjud.com |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://xiongmaodj.net/dizhi/
 
