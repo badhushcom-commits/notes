@@ -42,6 +42,7 @@
 | 备用 | https://xiguaduanjug.cc |
 | 备用 | https://xiguaduanjug.com |
 | 备用 | https://xiguaduanjug.net |
+| 备用 | https://xiguaduanjuh.cc |
 | 备用 | https://xiguaduanjuh.com |
 | 备用 | https://xiguaduanjusp.com |
 
