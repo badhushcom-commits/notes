@@ -17,6 +17,7 @@
 | 备用 | https://aihdsp.com |
 | 备用 | https://aihdsp.net |
 | 备用 | https://aihuangdou.net |
+| 备用 | https://aihuangdoudj.cc |
 | 备用 | https://aihuangdoudj.com |
 | 备用 | https://doudj.cc |
 | 备用 | https://hddj2.cc |
