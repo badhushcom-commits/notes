@@ -11,6 +11,7 @@
 | 入口 | 链接 |
 | --- | --- |
 | 主站 | https://madoumgdj.com |
+| 备用 | https://aimadoudj.com |
 | 备用 | https://aimadoudj.net |
 | 备用 | https://aimadouduanju.cc |
 | 备用 | https://aimadouduanju.net |
