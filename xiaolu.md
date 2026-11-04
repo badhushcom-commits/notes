@@ -11,6 +11,7 @@
 | 入口 | 链接 |
 | --- | --- |
 | 主站 | https://aixiaoludj.com |
+| 备用 | https://aixiaoluduanju.com |
 | 备用 | https://xiaoludj.cc |
 | 备用 | https://xiaoludj.net |
 | 备用 | https://xiaoluduanj.cc |
