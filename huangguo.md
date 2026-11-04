@@ -11,6 +11,7 @@
 | 入口 | 链接 |
 | --- | --- |
 | 主站 | https://huangguodj.tv |
+| 备用 | https://aihgdj.net |
 | 备用 | https://aihuangguodj.cc |
 | 备用 | https://aihuangguodj.net |
 | 备用 | https://aihuangguoduanju.cc |
