@@ -2,7 +2,7 @@
 
 小鹿短剧精选上万部短剧全集免费在线观看,涵盖小鹿首发原创、怦然剧场、真人剧集、都市甜宠、复仇逆袭、古装虐恋等题材,每日更新,高清竖屏沉浸追剧,手机电脑打开即看,无需下载。
 
-> 最后更新：2026-11-03
+> 最后更新：2026-11-04
 
 ## 🌐 最新地址
 
@@ -10,8 +10,7 @@
 
 | 入口 | 链接 |
 | --- | --- |
-| 主站 | https://4399duanjuh.net |
-| 备用 | https://aixiaoludj.com |
+| 主站 | https://aixiaoludj.com |
 | 备用 | https://xiaoludj.cc |
 | 备用 | https://xiaoludj.net |
 | 备用 | https://xiaoluduanj.cc |
@@ -42,11 +41,12 @@
 | 备用 | https://xiaoluduanjug.net |
 | 备用 | https://xiaoluduanjuh.cc |
 | 备用 | https://xiaoluduanjuh.com |
+| 备用 | https://xiaoluduanjuh.net |
 | 备用 | https://xlmgdj.cc |
 | 备用 | https://xlmgdj.com |
 | 备用 | https://xlmgdj.net |
 
-> 站内地址页（能打开时以它为准，更新更实时）：https://4399duanjuh.net/dizhi/
+> 站内地址页（能打开时以它为准，更新更实时）：https://aixiaoludj.com/dizhi/
 
 ## 📌 失联后如何获取最新地址
 
