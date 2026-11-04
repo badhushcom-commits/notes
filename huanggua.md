@@ -17,6 +17,7 @@
 | 备用 | https://aihgsp.net |
 | 备用 | https://aihuanggua.cc |
 | 备用 | https://aihuanggua.net |
+| 备用 | https://aihuangguadj.cc |
 | 备用 | https://aihuangguadj.com |
 | 备用 | https://aihuangguadj.net |
 | 备用 | https://aihuangguaduanju.cc |
