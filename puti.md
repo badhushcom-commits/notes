@@ -38,6 +38,7 @@
 | 备用 | https://putiduanjue.cc |
 | 备用 | https://putiduanjue.com |
 | 备用 | https://putiduanjue.net |
+| 备用 | https://putiduanjuf.com |
 | 备用 | https://putimgdj.com |
 | 备用 | https://putimgdj.net |
 
