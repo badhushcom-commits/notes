@@ -11,6 +11,7 @@
 | 入口 | 链接 |
 | --- | --- |
 | 主站 | https://hddj.tv |
+| 备用 | https://aihddj.net |
 | 备用 | https://aihdshort.com |
 | 备用 | https://aihdshort.net |
 | 备用 | https://aihdsp.cc |
