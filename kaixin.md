@@ -43,6 +43,7 @@
 | 备用 | https://kaixinduanjuh.cc |
 | 备用 | https://kaixinduanjuh.com |
 | 备用 | https://kaixinduanjuh.net |
+| 备用 | https://kaixinduanjui.cc |
 | 备用 | https://kaixinduanjui.com |
 | 备用 | https://kxaidj.cc |
 | 备用 | https://kxaidj.com |
