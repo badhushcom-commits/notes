@@ -2,7 +2,7 @@
 
 番茄短剧精选上万部短剧全集免费在线观看,涵盖番茄首发原创、上头剧场、真人出演、都市甜宠、复仇逆袭、古装虐恋等题材,每日更新,高清竖屏沉浸追剧,手机电脑打开即看,无需下载。
 
-> 最后更新：2026-11-04
+> 最后更新：2026-11-05
 
 ## 🌐 最新地址
 
@@ -41,6 +41,7 @@
 | 备用 | https://fanqieduanjuh.cc |
 | 备用 | https://fanqieduanjuh.com |
 | 备用 | https://fanqieduanjuh.net |
+| 备用 | https://fanqieduanjui.com |
 | 备用 | https://fqdrama.cc |
 | 备用 | https://fqdrama.net |
 | 备用 | https://fqmgdj.cc |
