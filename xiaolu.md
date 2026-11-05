@@ -43,6 +43,7 @@
 | 备用 | https://xiaoluduanjuh.cc |
 | 备用 | https://xiaoluduanjuh.com |
 | 备用 | https://xiaoluduanjuh.net |
+| 备用 | https://xiaoluduanjui.cc |
 | 备用 | https://xiaoluduanjui.com |
 | 备用 | https://xlmgdj.cc |
 | 备用 | https://xlmgdj.com |
