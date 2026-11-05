@@ -70,6 +70,7 @@
 | 备用 | https://huangdouduanjuh.cc |
 | 备用 | https://huangdouduanjuh.com |
 | 备用 | https://huangdouduanjuh.net |
+| 备用 | https://huangdouduanjui.cc |
 | 备用 | https://huangdouduanjui.com |
 | 备用 | https://huangdouhui.com |
 | 备用 | https://huangdouhui.net |
