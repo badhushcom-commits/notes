@@ -2,7 +2,7 @@
 
 菩提短剧收录海量短剧全集免费在线观看:菩提首发、顿悟剧场、清心专区、真人演绎四大专区,逆袭、重生、复仇、甜宠、虐恋题材应有尽有。每日更新追更,高清免费看,无需下载,手机电脑打开即看。
 
-> 最后更新：2026-11-04
+> 最后更新：2026-11-05
 
 ## 🌐 最新地址
 
@@ -38,6 +38,7 @@
 | 备用 | https://putiduanjue.cc |
 | 备用 | https://putiduanjue.com |
 | 备用 | https://putiduanjue.net |
+| 备用 | https://putiduanjuf.cc |
 | 备用 | https://putiduanjuf.com |
 | 备用 | https://putimgdj.com |
 | 备用 | https://putimgdj.net |
