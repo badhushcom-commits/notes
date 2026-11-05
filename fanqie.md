@@ -41,6 +41,7 @@
 | 备用 | https://fanqieduanjuh.cc |
 | 备用 | https://fanqieduanjuh.com |
 | 备用 | https://fanqieduanjuh.net |
+| 备用 | https://fanqieduanjui.cc |
 | 备用 | https://fanqieduanjui.com |
 | 备用 | https://fqdrama.cc |
 | 备用 | https://fqdrama.net |
