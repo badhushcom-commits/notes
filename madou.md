@@ -59,6 +59,7 @@
 | 备用 | https://madouduanjui.cc |
 | 备用 | https://madouduanjui.com |
 | 备用 | https://madouduanjui.net |
+| 备用 | https://madouduanjuj.com |
 | 备用 | https://mddj.tv |
 | 备用 | https://mddj.tw |
 | 备用 | https://mddj2.cc |
