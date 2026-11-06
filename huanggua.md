@@ -69,6 +69,7 @@
 | 备用 | https://huangguaduanjui.cc |
 | 备用 | https://huangguaduanjui.com |
 | 备用 | https://huangguaduanjui.net |
+| 备用 | https://huangguaduanjuj.com |
 | 备用 | https://shorthg.com |
 | 备用 | https://shorthg.net |
 
