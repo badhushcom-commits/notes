@@ -59,6 +59,7 @@
 | 备用 | https://huangtaoduanjug.net |
 | 备用 | https://huangtaoduanjuh.com |
 | 备用 | https://huangtaoduanjuh.net |
+| 备用 | https://huangtaoduanjui.cc |
 | 备用 | https://huangtaoduanjui.com |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://htdjsp.com/dizhi/
