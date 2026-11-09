@@ -60,6 +60,7 @@
 | 备用 | https://kuaishouduanjuh.cc |
 | 备用 | https://kuaishouduanjuh.com |
 | 备用 | https://kuaishouduanjuh.net |
+| 备用 | https://kuaishouduanjui.cc |
 | 备用 | https://kuaishouduanjui.com |
 | 备用 | https://kuaishouduanjui.net |
 
