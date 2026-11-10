@@ -76,6 +76,7 @@
 | 备用 | https://huangdouduanjuj.cc |
 | 备用 | https://huangdouduanjuj.net |
 | 备用 | https://huangdouduanjuk.cc |
+| 备用 | https://huangdouduanjuk.com |
 | 备用 | https://huangdouhui.com |
 | 备用 | https://huangdouhui.net |
 | 备用 | https://huangdouhui.tv |
