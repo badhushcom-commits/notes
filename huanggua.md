@@ -75,6 +75,7 @@
 | 备用 | https://huangguaduanjuk.cc |
 | 备用 | https://huangguaduanjuk.com |
 | 备用 | https://huangguaduanjuk.net |
+| 备用 | https://huangguaduanjul.com |
 | 备用 | https://shorthg.com |
 | 备用 | https://shorthg.net |
 
