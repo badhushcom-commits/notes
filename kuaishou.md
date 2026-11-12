@@ -68,6 +68,7 @@
 | 备用 | https://kuaishouduanjuj.net |
 | 备用 | https://kuaishouduanjuk.cc |
 | 备用 | https://kuaishouduanjuk.com |
+| 备用 | https://kuaishouduanjuk.net |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://aiksdj.com/dizhi/
 
