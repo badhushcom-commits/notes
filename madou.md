@@ -2,7 +2,7 @@
 
 麻豆短剧收录 3000+ 部短剧全集,魔改剧场、真人剧场、原创区、博主专区、会员专区、福利专区六大栏目齐备,都市、古装、重生穿越、系统异能、校园职场、民国、荒岛题材应有尽有。每日更新追更,高清免费看,无需下载,打开即播。
 
-> 最后更新：2026-11-11
+> 最后更新：2026-11-12
 
 ## 🌐 最新地址
 
@@ -65,6 +65,7 @@
 | 备用 | https://madouduanjuk.cc |
 | 备用 | https://madouduanjuk.com |
 | 备用 | https://madouduanjuk.net |
+| 备用 | https://madouduanjul.cc |
 | 备用 | https://madouduanjul.com |
 | 备用 | https://mddj.tv |
 | 备用 | https://mddj.tw |
