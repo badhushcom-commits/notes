@@ -80,6 +80,7 @@
 | 备用 | https://huangdouduanjuk.net |
 | 备用 | https://huangdouduanjul.cc |
 | 备用 | https://huangdouduanjul.com |
+| 备用 | https://huangdouduanjul.net |
 | 备用 | https://huangdouhui.com |
 | 备用 | https://huangdouhui.net |
 | 备用 | https://huangdouhui.tv |
