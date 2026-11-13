@@ -33,6 +33,7 @@
 | 备用 | https://kuaishoudja.cc |
 | 备用 | https://kuaishoudja.com |
 | 备用 | https://kuaishoudja.net |
+| 备用 | https://kuaishoudjb.com |
 | 备用 | https://kuaishouduanj.cc |
 | 备用 | https://kuaishouduanj.com |
 | 备用 | https://kuaishouduanj.net |
