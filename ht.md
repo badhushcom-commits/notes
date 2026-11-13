@@ -31,6 +31,7 @@
 | 备用 | https://huangtaoai.net |
 | 备用 | https://huangtaodj.com |
 | 备用 | https://huangtaodj.net |
+| 备用 | https://huangtaodja.cc |
 | 备用 | https://huangtaodja.com |
 | 备用 | https://huangtaoduanj.cc |
 | 备用 | https://huangtaoduanj.com |
