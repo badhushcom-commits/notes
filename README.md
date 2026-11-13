@@ -42,6 +42,7 @@
 | 备用 | https://huangdoudj.me |
 | 备用 | https://huangdoudj.net |
 | 备用 | https://huangdoudj.tv |
+| 备用 | https://huangdoudja.cc |
 | 备用 | https://huangdoudja.com |
 | 备用 | https://huangdouduanj.cc |
 | 备用 | https://huangdouduanj.com |
