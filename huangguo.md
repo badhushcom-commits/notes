@@ -2,7 +2,7 @@
 
 黄果短剧汇聚全网热门短剧全集,免费高清在线追看:古装穿越、战神逆袭、豪门恩怨、复仇虐恋与系统异能多元题材,每日上新,竖屏沉浸,手机电脑打开即看,无需下载安装。
 
-> 最后更新：2026-11-13
+> 最后更新：2026-11-14
 
 ## 🌐 最新地址
 
@@ -26,6 +26,7 @@
 | 备用 | https://huangguodj.net |
 | 备用 | https://huangguodja.cc |
 | 备用 | https://huangguodja.net |
+| 备用 | https://huangguodjb.net |
 | 备用 | https://huangguoduanj.cc |
 | 备用 | https://huangguoduanj.net |
 | 备用 | https://huangguoduanjua.cc |
