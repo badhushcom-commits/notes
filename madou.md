@@ -29,6 +29,7 @@
 | 备用 | https://madoudja.cc |
 | 备用 | https://madoudja.com |
 | 备用 | https://madoudja.net |
+| 备用 | https://madoudjb.com |
 | 备用 | https://madouduanj.cc |
 | 备用 | https://madouduanj.com |
 | 备用 | https://madouduanj.net |
