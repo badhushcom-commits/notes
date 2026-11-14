@@ -35,6 +35,7 @@
 | 备用 | https://kuaishoudja.net |
 | 备用 | https://kuaishoudjb.cc |
 | 备用 | https://kuaishoudjb.com |
+| 备用 | https://kuaishoudjb.net |
 | 备用 | https://kuaishouduanj.cc |
 | 备用 | https://kuaishouduanj.com |
 | 备用 | https://kuaishouduanj.net |
