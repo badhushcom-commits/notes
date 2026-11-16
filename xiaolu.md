@@ -48,6 +48,7 @@
 | 备用 | https://xiaoluduanjui.net |
 | 备用 | https://xiaoluduanjuj.cc |
 | 备用 | https://xiaoluduanjuj.com |
+| 备用 | https://xiaoluduanjuj.net |
 | 备用 | https://xlmgdj.cc |
 | 备用 | https://xlmgdj.com |
 | 备用 | https://xlmgdj.net |
