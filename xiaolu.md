@@ -49,6 +49,7 @@
 | 备用 | https://xiaoluduanjuj.cc |
 | 备用 | https://xiaoluduanjuj.com |
 | 备用 | https://xiaoluduanjuj.net |
+| 备用 | https://xiaoluduanjuk.cc |
 | 备用 | https://xiaoluduanjuk.com |
 | 备用 | https://xlmgdj.cc |
 | 备用 | https://xlmgdj.com |
