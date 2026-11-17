@@ -44,6 +44,7 @@
 | 备用 | https://huangguadjb.cc |
 | 备用 | https://huangguadjb.com |
 | 备用 | https://huangguadjb.net |
+| 备用 | https://huangguadjc.cc |
 | 备用 | https://huangguadjc.com |
 | 备用 | https://huangguaduanj.cc |
 | 备用 | https://huangguaduanj.com |
