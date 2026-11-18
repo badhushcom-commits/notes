@@ -41,6 +41,7 @@
 | 备用 | https://kuaishoudjc.net |
 | 备用 | https://kuaishoudjd.cc |
 | 备用 | https://kuaishoudjd.com |
+| 备用 | https://kuaishoudjd.net |
 | 备用 | https://kuaishouduanj.cc |
 | 备用 | https://kuaishouduanj.com |
 | 备用 | https://kuaishouduanj.net |
