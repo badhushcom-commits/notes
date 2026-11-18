@@ -35,6 +35,7 @@
 | 备用 | https://madoudjc.cc |
 | 备用 | https://madoudjc.com |
 | 备用 | https://madoudjc.net |
+| 备用 | https://madoudjd.com |
 | 备用 | https://madouduanj.cc |
 | 备用 | https://madouduanj.com |
 | 备用 | https://madouduanj.net |
