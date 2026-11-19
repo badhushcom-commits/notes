@@ -54,6 +54,7 @@
 | 备用 | https://xiaoluduanjuk.net |
 | 备用 | https://xiaoluduanjul.cc |
 | 备用 | https://xiaoluduanjul.com |
+| 备用 | https://xiaoluduanjul.net |
 | 备用 | https://xlmgdj.cc |
 | 备用 | https://xlmgdj.com |
 | 备用 | https://xlmgdj.net |
