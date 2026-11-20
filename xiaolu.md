@@ -14,6 +14,7 @@
 | 备用 | https://aixiaoluduanju.com |
 | 备用 | https://xiaoludj.cc |
 | 备用 | https://xiaoludj.net |
+| 备用 | https://xiaoludja.cc |
 | 备用 | https://xiaoludja.com |
 | 备用 | https://xiaoluduanj.cc |
 | 备用 | https://xiaoluduanj.com |
