@@ -37,6 +37,7 @@
 | 备用 | https://huangguodjf.cc |
 | 备用 | https://huangguodjf.net |
 | 备用 | https://huangguodjg.cc |
+| 备用 | https://huangguodjg.net |
 | 备用 | https://huangguoduanj.cc |
 | 备用 | https://huangguoduanj.net |
 | 备用 | https://huangguoduanjua.cc |
