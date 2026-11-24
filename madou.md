@@ -44,6 +44,7 @@
 | 备用 | https://madoudjf.cc |
 | 备用 | https://madoudjf.com |
 | 备用 | https://madoudjf.net |
+| 备用 | https://madoudjg.cc |
 | 备用 | https://madoudjg.com |
 | 备用 | https://madouduanj.cc |
 | 备用 | https://madouduanj.com |
