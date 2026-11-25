@@ -23,6 +23,7 @@
 | 备用 | https://xiaoludjc.cc |
 | 备用 | https://xiaoludjc.com |
 | 备用 | https://xiaoludjc.net |
+| 备用 | https://xiaoludjd.com |
 | 备用 | https://xiaoluduanj.cc |
 | 备用 | https://xiaoluduanj.com |
 | 备用 | https://xiaoluduanj.net |
