@@ -38,6 +38,7 @@
 | 备用 | https://xiongmaoduanjuf.cc |
 | 备用 | https://xiongmaoduanjuf.com |
 | 备用 | https://xiongmaoduanjuf.net |
+| 备用 | https://xiongmaoduanjug.cc |
 | 备用 | https://xiongmaoduanjug.com |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://xiongmaodj.net/dizhi/
