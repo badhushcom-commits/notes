@@ -57,6 +57,7 @@
 | 备用 | https://xiguaduanjuk.net |
 | 备用 | https://xiguaduanjul.cc |
 | 备用 | https://xiguaduanjul.com |
+| 备用 | https://xiguaduanjul.net |
 | 备用 | https://xiguaduanjusp.com |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://xgdj.tv/dizhi/
