@@ -66,6 +66,7 @@
 | 备用 | https://huangdoudjh.cc |
 | 备用 | https://huangdoudjh.com |
 | 备用 | https://huangdoudjh.net |
+| 备用 | https://huangdoudji.com |
 | 备用 | https://huangdoudji.net |
 | 备用 | https://huangdouduanj.cc |
 | 备用 | https://huangdouduanj.com |
@@ -111,7 +112,6 @@
 | 备用 | https://huangdouhui.tv |
 | 备用 | https://huangdousp.cc |
 | 备用 | https://huangdousp.net |
-| 备用 | https://huangguodjl.net |
 
 > 站内地址页（能打开时以它为准，更新更实时）：https://hddj.tv/dizhi/
 
