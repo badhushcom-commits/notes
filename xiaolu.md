@@ -2,7 +2,7 @@
 
 小鹿短剧精选上万部短剧全集免费在线观看,涵盖小鹿首发原创、怦然剧场、真人剧集、都市甜宠、复仇逆袭、古装虐恋等题材,每日更新,高清竖屏沉浸追剧,手机电脑打开即看,无需下载。
 
-> 最后更新：2026-11-27
+> 最后更新：2026-11-28
 
 ## 🌐 最新地址
 
@@ -28,6 +28,7 @@
 | 备用 | https://xiaoludjd.net |
 | 备用 | https://xiaoludje.cc |
 | 备用 | https://xiaoludje.com |
+| 备用 | https://xiaoludje.net |
 | 备用 | https://xiaoluduanj.cc |
 | 备用 | https://xiaoluduanj.com |
 | 备用 | https://xiaoluduanj.net |
